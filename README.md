@@ -1,1 +1,2 @@
-# 714232002_ADEMULYADI
+# 714232002_ADEMULYADIAS
+Video Ujian ATIS https://youtu.be/rXmWZ-cUxb0
